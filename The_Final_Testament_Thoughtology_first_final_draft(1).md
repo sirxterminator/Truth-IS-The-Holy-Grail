@@ -1,6 +1,6 @@
 # THE FINAL TESTAMENT
 
-## Thoughtology, the Science of How to 'BE'
+## Thoughtology, the Science of How to 'BE' a Timeless 'BE'ing
 
 ### (A Good-for-Now Edition)
 
