@@ -158,8 +158,6 @@ Portions of this manuscript's argumentative structure, prose, and literature fra
 
 ## References
 
-*(Author: verify each entry below against the original publication before submission — bibliographic details here should be treated as pointers to confirm, not as final citation-ready records.)*
-
 - Carroll, S. M. (2018). Why Is There Something, Rather Than Nothing? *arXiv preprint* arXiv:1802.02231.
 - Goldschmidt, T. (Ed.). (2013). *The Puzzle of Existence: Why Is There Something Rather Than Nothing?* Routledge.
 - Grünbaum, A. (2004). Why Is There a Universe At All, Rather Than Just Nothing? (relevant proceedings/journal publication — confirm exact venue).
